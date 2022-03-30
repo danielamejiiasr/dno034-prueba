@@ -3,7 +3,7 @@ Entega Prueba 30/03
 Estudiante: Daniela Mejías
 
 Dibujos hechos por usuarios: 
-<br>
+
 Estudiante Diseño, 23 años, uso de tecnología medio-alto: 
 ![WhatsApp Image 2022-03-29 at 8 16 15 PM](https://user-images.githubusercontent.com/75910897/160851772-2409d2d5-7c27-4ee2-98ac-797c5dfafbe6.jpeg)
 
